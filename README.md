@@ -1,1 +1,1 @@
-# Landing-Page-task-Octanet
+# Landing-Page-Study-Partner
